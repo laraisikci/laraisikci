@@ -1,4 +1,4 @@
-# Hi there, I'm Lara 👋
+# Lara Işıkcı 👋
 
 **Business Analytics MSc @ ESADE · Finance · Data**
 
