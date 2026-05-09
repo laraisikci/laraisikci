@@ -1,4 +1,4 @@
-# Lara Işıkcı 👋
+# Lara Işıkcı 
 
 **Business Analytics MSc @ ESADE · Finance · Data**
 
